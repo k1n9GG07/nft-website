@@ -1,1 +1,1 @@
-[Мой сайт](https:// k1n9GG07.github.io/nft-website/)
+[открыть](https://k1n9gg07.github.io/nft-website/)
